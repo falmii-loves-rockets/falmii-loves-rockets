@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @falmii-from-the-abyss
+- 👋 Hi, I’m Falmii
 - 👀 I’m interested in Rocketry
 - 🌱 I’m currently learning pre-engineering 
 - 💞️ I’m looking to collaborate on ...
